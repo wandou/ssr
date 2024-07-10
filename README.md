@@ -1,6 +1,8 @@
 # ssr
 
-### SS/SSR 付费节点 2022-8-1 更新 
+### SS/SSR 付费节点 2024-7-1 更新
+
+https://cocoduck.live/auth/register?code=11d5195115
 
 https://justmysocks3.net/members/aff.php?aff=2765
 
